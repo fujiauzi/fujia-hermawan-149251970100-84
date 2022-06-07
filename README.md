@@ -1,2 +1,2 @@
 # Nama : Fujia Hermawan
-# ID Reg : 149251970100-84
+# ID Registrasi : 149251970100-84

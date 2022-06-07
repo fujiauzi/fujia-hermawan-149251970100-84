@@ -1,1 +1,2 @@
-# fujia-hermawan-149251970100-84
+# Nama : Fujia Hermawan
+# ID Reg : 149251970100-84
